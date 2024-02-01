@@ -1,1 +1,0 @@
-* Follow Me: [Twitter](https://twitter.com/DirectedByEgg), [GitHub](https://github.com/Evan-Johnston)
